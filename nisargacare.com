@@ -1,0 +1,7 @@
+Assisted Living Facilities in Bangalore | www.nisargacare.com | centres for bedridden patients in bangalore | , Senior Care Bangalore , Assisted Living Centers in Bangalore | Senior Citizen Homes in Bangalore, , Best Senior Citizen Care Center in Bangalore with dementia village bangalore , Nursing and Medical Care Facilities.
+
+Our Services @ Navachatanya 
+At Navachatanya Care, our goal is to provide the best possible care to our patients/residents. Here is a brief information about what we offer, but you can visit our campus anytime.
+
+Assisted Living Facility, Assisted Care Facility Bangalore, 
+Assisted Care Aging parents and their working children face challenging situations. An older person may start developing neurological problems or related conditions like dementia, Alzheimer's, Parkinson's, etc. Advanced chronic diseases that limit daily functioning and/or require frequent hospitalization, such as advanced heart failure, chronic illness, advanced chronic lung disease, or progressive skeletal and neurological conditions. Sudden disability after a fall, stroke, or other health emergency. Difficulty recovering after hospitalization, especially if the elderly person has seizures or other complications, diseases associated with aging, which eventually lead to general weakness and loss of physical strength. Very old age brings with it a significant set of age-related cognitive changes and is a strong risk factor for developing dementia and other bedridden conditions. Geriatric care centres in bangalore
